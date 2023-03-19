@@ -1,0 +1,1 @@
+# kortail-pos-oman
